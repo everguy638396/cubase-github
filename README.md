@@ -1,1 +1,1 @@
-# haqs4a8sb0
+https://github.com/jwndjyd4bg/jwndjyd4bg/invitations
